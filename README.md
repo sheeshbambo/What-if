@@ -1,0 +1,1 @@
+crush na kita
